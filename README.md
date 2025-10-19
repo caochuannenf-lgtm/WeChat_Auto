@@ -13,6 +13,7 @@
 ### 禁止商业化
 本项目仅限于个人学习和研究目的，禁止用于商业化用途。若有商业用途需求，请自行获取相关法律咨询并遵守相关法规。
 
-### 讨论群
+### 加我进群
 
-![dfae34105dd9d12b32814492d7547176](https://github.com/user-attachments/assets/80c59644-e5e3-479f-8a45-e190e39f9d15)
+
+![13ecfada307b134917ceef46cdf351c1](https://github.com/user-attachments/assets/e0595715-3edb-4893-a7a9-62faa701fbfb)
